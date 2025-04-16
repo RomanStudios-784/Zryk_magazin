@@ -1,0 +1,1 @@
+# Zryk_magazin
